@@ -1,1 +1,1 @@
-# Flavone
+# Flavonoid
